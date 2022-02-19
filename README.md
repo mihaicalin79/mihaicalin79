@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mihaicalin79
-- 👀 I’m interested in ...sourcing right candidates but also knowing people
+- 👀 I’m interested in ...knowing people
 - 🌱 I’m currently learning ...to get around
-- 💞️ I’m looking to collaborate on ...recruiting and project management
+- 💞️ I’m looking to collaborate on ...recruiting and project management(yes...i am a sourcing specialist what can i do about it....:))
 - 📫 How to reach me ...mihai79calin@gmail.com
 
 <!---
